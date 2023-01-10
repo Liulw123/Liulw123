@@ -8,7 +8,7 @@
 
 - i am a Chinese, so please don't dislike me.😛
 
-- i am a fnf porter (i think) and i have a friend:nmslq.😈
+- i am a fnf porter ( i think haha ) and i have a friend:nmslq.😈
 
 - i want to be your friend.😋
 
