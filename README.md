@@ -12,6 +12,6 @@
 
 - i want to be your friend.😋
 
-- i can help you fix something about fnf source code.But i can't 100% help u.🙂
+- i can help you fix something about fnf source code.i can't 100% help u.🙂
 
 - please to follow nmslq, he is a good porter.😄
