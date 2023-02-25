@@ -1,17 +1,11 @@
-### Hi there 👋
+### lol
 
 ![Anurag's GitHub Status](https://github-readme-stats.vercel.app/api?username=Liulw123&show_icons=true&theme=radical)
 
-- i want make a cool  something.🤔
+- my network name is ye_nb.
 
-- hi guys, i am Liulw123.🙂
+- you can ask me about fnf source.
 
-- i am a Chinese, so please don't dislike me.😛
+- i am learning haxe, lua.
 
-- i am a fnf porter .( i think haha ) And i have a nice friend:nmslq.😨
-
-- i want to be your friend.😋
-
-- i can help you fix something about fnf source code.i can't 100% help u.🙂
-
-- please to follow nmslq, he is a good porter.😄
+- period XD
